@@ -3,7 +3,10 @@ https://github.com/Rose-007/LEO-3C-AI-Success-Case-Study
 
 ##Originally posted(thai vertion)
 https://www.facebook.com/share/p/1cf5gvXsuX/
+
 ---
+
+![](Leo3c-hand.jpg)
 
 1. Local Manufacturing: Jackets MUST be 100% made in origin country (Sovereign Identity) / Internal sensors CAN be imported (Tech Excellence)
 
